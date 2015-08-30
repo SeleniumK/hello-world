@@ -9,3 +9,5 @@ Studying Micro-Biology in the long run, I am taking a bit of a break to learn ho
 After I become experienced in both realms, it is my goal to work in research and bring together Biology and Programming.
 
 Star Trek is the best show, and nobody writes horror like HP lovecraft. I love German theater, and most novels, and spend a lot of my free time making things out of yarn.
+
+Coffee is lifeblood.
